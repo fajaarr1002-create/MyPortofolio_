@@ -182,13 +182,13 @@ https://instagram.com/snapshot.by.jare
 WhatsApp
 
 ```text
-https://wa.me/6285708557587
+https://wa.me/6285*****758*
 ```
 
 Email
 
 ```text
-fajaarr1001@gmail.com
+f********@gmail.com
 ```
 
 ---
